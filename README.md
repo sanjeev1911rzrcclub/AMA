@@ -1,6 +1,6 @@
 # AMA
 
-## [Abhishek Agarwal](https://www.linkedin.com/in/abhishek-agarwal-35a595101/)
+## Abhishek Agarwal
 
 Abhishek Agarwal | KIET 2012 | Samsung | GATE | IIT-Delhi | VISA 
 
