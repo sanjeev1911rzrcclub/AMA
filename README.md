@@ -76,3 +76,13 @@ A little insight in his background:
 
 He completed mechanical engineering from DCE in 2013. After that, he worked as a business analyst for a couple of years. Then, quit his job to prepare for civil services full time. And now, he is training at LBSNAA, Mussourie as an IAS probationer. He is an aviate tennis follower. Apart from that, he likes to read and write philosophical and non-fictional work. 
 
+## [Aamna](https://www.linkedin.com/in/aamna92)
+Aamna did her B.Sc/IT from Xavier’s. Although she never did a formal MBA, she worked in multiple roles like sales, admin and marketing at CouponDunia. 
+
+Armed with this experience, she joined LocalOye to handle marketing and product. A product manager role(at a technology startup) typically involves coordinating key business concerns like revenue, users, market. 
+
+She's now a product manager at Simpl and is currently building user experiences to make money easier(getsimpl.com).
+
+She's seen a lot of sides of the world at an early age.
+
+[Transcript](https://medium.com/c-club/real-world-work-experience-beats-most-in-class-education-an-ama-with-aamna-34c7b82549b1)
